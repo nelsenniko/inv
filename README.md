@@ -1,43 +1,74 @@
-# 🎉 UNDANGAN DIGITAL
+# ✨ NELINVITE
+## UNDANGAN DIGITAL
 
-### Momen Spesial Jadi Lebih Berkesan!
+### 💖 Momen Spesial, Kenangan Istimewa!
 
-Buat undangan digital modern, elegan, menarik, dan interaktif. Praktis dibagikan kepada keluarga, sahabat, dan teman melalui WhatsApp maupun media sosial.
+Hadirkan undangan digital yang modern, elegan, dan interaktif untuk setiap momen berharga. Desain menarik, praktis dibagikan, dan mudah diakses melalui HP maupun komputer.
 
 ---
 
-## 💖 HARGA HANYA Rp15.000
+# 💎 HARGA SPESIAL
+# **Rp15.000 / UNDANGAN**
 
-### ✨ Fitur Unggulan
-- 🎨 Beragam desain dan tema menarik
-- 🎵 Musik latar sesuai tema acara
-- 🎈 Animasi dan efek visual interaktif
-- 📸 Galeri foto
-- ⏳ Countdown acara
-- 📍 Integrasi Google Maps
-- 💌 Halaman pembuka dan penutup
-- 📱 Tampilan responsif untuk HP dan komputer
-- 🔗 Link undangan
-- Dan berbagai fitur menarik lainnya!
+## 🌟 FITUR UNGGULAN
 
-### 🎊 Berbagai Jenis Undangan
-- 💍 Pernikahan
-- 🎂 Ulang Tahun
-- 👶 Aqiqah
-- 🎉 Khitanan
-- 🎓 Wisuda
-- 💕 Pertunangan
-- 🍼 Baby Shower
-- Dan berbagai acara spesial lainnya!
+🎨 **Desain Premium**  
+Beragam pilihan desain dan tema menarik.
+
+🎵 **Musik Latar**  
+Musik yang disesuaikan dengan tema acara.
+
+🎈 **Animasi Interaktif**  
+Efek visual yang indah dan menarik.
+
+📸 **Galeri Foto**  
+Abadikan momen spesial dalam satu undangan.
+
+⏳ **Countdown Acara**  
+Hitung mundur menuju hari istimewa.
+
+📍 **Google Maps**  
+Petunjuk lokasi acara dengan mudah.
+
+💌 **Halaman Pembuka & Penutup**  
+Tampilan undangan lebih berkesan.
+
+📱 **Desain Responsif**  
+Nyaman dibuka melalui HP, tablet, dan komputer.
+
+🔗 **Link Undangan Pribadi**  
+Mudah dibagikan melalui WhatsApp dan media sosial.
+
+✨ **Dan berbagai fitur menarik lainnya!**
+
+---
+
+## 🎊 PILIHAN JENIS UNDANGAN
+
+💍 Pernikahan  
+🎂 Ulang Tahun  
+👶 Aqiqah  
+🎉 Khitanan  
+🎓 Wisuda  
+💕 Pertunangan  
+🍼 Baby Shower  
+
+**Dan berbagai acara spesial lainnya!**
 
 ---
 
 ## 📲 PESAN SEKARANG!
 
-**Harga: Rp15.000 / Undangan**
+Wujudkan undangan digital impianmu dengan harga terjangkau.
 
-**👉 [WhatsApp: 085328736706](https://wa.me/6285328736706)**
+### 💰 Hanya Rp15.000 per undangan!
 
-*Praktis, modern, dan berkesan. Jadikan setiap momen lebih istimewa bersama NELINVITE!* ❤️
+👉 **[WhatsApp: 085328736706](https://wa.me/6285328736706)**  
 
-### [inv](https://nelsenniko.github.io/inv)
+🌐 **Website:**  
+https://nelsenniko.github.io/inv
+
+---
+
+### ❤️ NELINVITE
+**Modern • Elegan • Praktis • Berkesan**
