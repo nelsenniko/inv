@@ -65,8 +65,8 @@ Wujudkan undangan digital impianmu dengan harga terjangkau.
 
 👉 **[WhatsApp: 085328736706](https://wa.me/6285328736706)**  
 
-🌐 **Website:**  
-https://nelsenniko.github.io/inv
+### Metode Pembayaran:
+🏧 **DANA :085328736706**
 
 ---
 
