@@ -36,7 +36,7 @@ Buat undangan digital modern, elegan, menarik, dan interaktif. Praktis dibagikan
 
 **Harga: Rp15.000 / Undangan**
 
-** 👉 [WhatsApp: 085328736706](https://wa.me/6285328736706)**
+**👉 [WhatsApp: 085328736706](https://wa.me/6285328736706)**
 
 *Praktis, modern, dan berkesan. Jadikan setiap momen lebih istimewa bersama NELINVITE!* ❤️
 
