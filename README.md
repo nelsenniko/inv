@@ -1,2 +1,1 @@
-# inv
-inv
+# [inv](https://nelsenniko.github.io/inv)
